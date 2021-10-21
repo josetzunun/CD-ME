@@ -10,3 +10,9 @@ Some may be late
 Some may be early
 It dosen't matter
 Cause that's what you do.
+
+Listen the only thing that matters in your life is love kindness and cuteness
+You will always be my hero.[Minecraft: Education Edition by Mojang.txt](https://github.com/josetzunun/CD-ME/files/7385384/Minecraft.Education.Edition.by.Mojang.txt)
+Secret minecraft
+https://www.minecraft.net
+Real minecraft
